@@ -1,0 +1,10 @@
+3A AUTOMATED TESTING 
+
+ANGGOTA :
+1. AURYNO NAGATA A   / 04
+2. DONY KURNIAWAN N / 06
+3. IRBA ADIKA JAYA / 12
+4. RAFLI ALFIAN N / 23
+
+LINK POWER POINT :
+https://docs.google.com/presentation/d/1g1ASu6ZlvJ-V--DGpLUsdtVEHjvijX3y0XFiKmDGhHg/edit?usp=sharing
